@@ -24,7 +24,7 @@
 
 ### すべてはここからはじまった「味のマルタイ　元祖長浜屋」
 
-<img src="https://www.marutai.co.jp/files/blog/1/blog_posts/2022/03/00000062_eye_catch.jpg?476668955" alt="" width="30%">
+<img src="https://www.marutai.co.jp/files/blog/1/blog_posts/2022/03/00000062_eye_catch.jpg?476668955" alt="" width="40%">
 
 九州といえば豚骨ラーメン。福岡、博多でスタンダードなラーメンである。豚骨ラーメンの系譜にもさまざまの分岐を経るからそのルーツはよくわかっていないらしいが、そのルーツの１つとされるのが長浜ラーメン。その元祖の店舗「長浜屋」。
 
@@ -39,7 +39,7 @@
 
 ### 本格九州豚骨ラーメンの疑似体験　「ハウス食品　うまかっちゃん　濃厚新味」
 
-<img src="https://m.media-amazon.com/images/I/51lvesLckxL._AC_UF894,1000_QL80_.jpg" alt="" width="30%">
+<img src="https://m.media-amazon.com/images/I/51lvesLckxL._AC_UF894,1000_QL80_.jpg" alt="" width="40%">
 
 ハウス食品といえばカレーを思いつくのだが、うまかっちゃんというラーメンは割とメジャーではないだろうか。しかしそのメジャーラーメンがハウス食品であることはあまり知られていないような気がする。  
 
@@ -54,7 +54,7 @@
 
 #### 「サッポロ一番　博多 shinshinラーメン」
 
-<img src="https://m.media-amazon.com/images/I/71p-no+aqGL._AC_UF894,1000_QL80_.jpg" alt="" width="30%">
+<img src="https://m.media-amazon.com/images/I/71p-no+aqGL._AC_UF894,1000_QL80_.jpg" alt="" width="40%">
 
 ラーメン業界は、有名店のタレント性も商売にしてしまう。ただし騙されてはいけない、有名度と味は相関関係を持たない。  
 しかしその店舗がどうであるかは食してみなければわからない
@@ -69,7 +69,7 @@
 
 #### 「味のマルタイ　博多　一幸舎　豚骨ラーメン」
 
-<img src="https://m.media-amazon.com/images/I/51HuJL7G3BL._AC_.jpg" alt="" width="30%">
+<img src="https://m.media-amazon.com/images/I/51HuJL7G3BL._AC_.jpg" alt="" width="40%">
 
 こちらは、味のマルタイのタイアップによる地元有名店の再現商品  
 
@@ -81,7 +81,7 @@
 
 #### 「明星　チャルメラ　バリカタ麺豚骨」
 
-<img src="https://m.media-amazon.com/images/I/61tZIZc7CFL._AC_.jpg" alt="" width="30%">
+<img src="https://m.media-amazon.com/images/I/61tZIZc7CFL._AC_.jpg" alt="" width="40%">
 
 インスタントラーメンの王者といえばチャルメラだろう。そのチャルメラが出した豚骨ラーメン。バリカタ麺を出してくるあたり、話題性であおり、家庭で簡単に替え玉豚骨ラーメンを味わえというコンセプトなのだろうか？  
 
@@ -90,7 +90,7 @@
 
 ### best ラーメン for me, 「味のマルタイ　屋台ラーメン」
 
-<img src="https://m.media-amazon.com/images/I/81d4oHQu1SL._AC_UF894,1000_QL80_.jpg" alt="" width="30%">
+<img src="https://m.media-amazon.com/images/I/81d4oHQu1SL._AC_UF894,1000_QL80_.jpg" alt="" width="40%">
 
 筆者の一番のお気に入り商品
 
@@ -103,7 +103,7 @@
 
 ### 変わり種　「味のマルタイ　これだラーメン」
 
-<img src="https://m.media-amazon.com/images/I/61qu8NVn6qL._AC_UF894,1000_QL80_.jpg" alt="" width="30%">
+<img src="https://m.media-amazon.com/images/I/61qu8NVn6qL._AC_UF894,1000_QL80_.jpg" alt="" width="40%">
 
 これはもう説明は私がする必要がない。次の動画を参照せよ
 
